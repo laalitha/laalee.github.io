@@ -1,2 +1,2 @@
-# laalee.github.io
+# laalitha.github.io
 personal website
